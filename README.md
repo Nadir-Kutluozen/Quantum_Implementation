@@ -3,3 +3,7 @@
 
 
 https://docs.google.com/document/d/1zguN0WDKI-nD2PeuHUCWhi4Yzjx9xnWX/edit
+
+Here is the presentation:
+
+https://www.canva.com/design/DAG6YQJZ62E/faZrBCSjKidf8ggNZA7GpA/edit
